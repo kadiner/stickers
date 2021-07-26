@@ -2,7 +2,7 @@
 
 📺 Watch [How to Make Your Sticker With Photoshop](https://youtu.be/8lGpZkjnkt4) on YouTube
 
-🤤 Buy [Laptop Stickers ](https://cutt.ly/eQr9NmZ) on Kadiner
+🤤 Buy [Laptop Stickers ](https://kadiner.ir) on Kadiner
 
 ## Instructions
 
