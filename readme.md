@@ -1,8 +1,8 @@
-😈 Pull Your Sticker on kadiner
+😉 Pull Your Sticker on kadiner
 
-📺 Watch [How to Make Your Sticker With Photoshop](https://youtu.be/8lGpZkjnkt4) on YouTube
+📺 Watch [How to Make Your Sticker With Photoshop](https://www.youtube.com/watch?v=m7Kg8H7HMpM&t) on YouTube
 
-🤤 Buy [Laptop Stickers ](https://kadiner.ir) on Kadiner
+😎 Buy [Laptop Stickers ](https://kadiner.ir) on Kadiner
 
 ## Instructions
 
